@@ -1,0 +1,2 @@
+#¿Qué es un Monstruo?
+Un monstruo ​ es un concepto muy amplio ligado a la mitología y la ficción. Se aplica a cualquier ser que presente características, por lo general negativas, ajenas al orden regular de la naturaleza.
