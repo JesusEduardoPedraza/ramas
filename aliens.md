@@ -1,0 +1,1 @@
+Alienígena se refiere a un ser que pertenece a otro lugar, un extraño o un extraterrestre. Según su origen latino, la palabra alienígena se refiere a algo o alguien que nace en otro lugar. Deriva del latín alienus que indica otro lugar, -gen- que se refiere al nacimiento u origen y el sufijo -a que señala un agente.
