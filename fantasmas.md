@@ -1,0 +1,3 @@
+#FANTASMAS
+
+Los fantasmas (del griego φάντασμα, "aparición"), en el folclore de muchas culturas, son supuestos espíritus o almas errantes o en pena de seres muertos (más raramente aún vivos), o seres del plano espiritual, que se manifiestan entre los vivos de forma perceptible (por ejemplo; visual, a través de sonidos, aromas o desplazando objetos —poltergeist—), principalmente en lugares con los cuales presentan un vínculo; tales como los que frecuentaban en vida, o en asociación con sus personas cercanas, en el caso de las almas de los fallecidos.
